@@ -1,0 +1,1 @@
+# Rättviks kommun
